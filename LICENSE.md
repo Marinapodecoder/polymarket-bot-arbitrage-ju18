@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with instant bot for Polymarket - trade-sniping and cross-chain-arbitrage, the #1 bot. Includes trade-sniping and cross-chain-arbitrage for a
 
 
 
